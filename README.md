@@ -5,7 +5,9 @@ You are more than welcome to check on them, and any kind of feedback will be mor
 If you want to reach me:
 
 Email: claudio.aime32@gmail.com
+
 Linkedin: https://www.linkedin.com/in/claudio-aime-2a91a034/
+
 Twitter: https://twitter.com/ClauHaus_
 
 Have an awesome day!
